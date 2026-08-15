@@ -12,7 +12,7 @@
 <td>
 <br>
 
-<p align="center">$\color{#5DC1F5}{Please, ​call​ me ​Viktor. ​This​ was ​made​ specifically ​for ​my ​Machine ​Herald ​cosplay.}$</p>
+<p align="center">$\color{#5DC1F5}{Please, ​call​ me ​Viktor. ​This​ was ​made​ specifically ​for ​my​ League ​Viktor ​cosplays.}$</p>
 
 <p align="center">$\color{#5DC1F5}{I ​am​ an​ adult - 18 ​years.​ Please​ respect​that​I ​do ​𝗻𝗼𝘁 ​want ​to ​interact ​if​ you're​ 𝘂𝗻𝗱𝗲𝗿​ 𝟭𝟱.}$</p>
 
@@ -30,5 +30,5 @@
 </div>
 
 
-<p align="center">$\color{#DB3BD8}{SIGN​ MY ​STUFF ​PLS?​ ​𖥔 ​@KayleighJudas - ​MAIN ​ACCOUNT​ @beautifulbydesign ​- ​FOLLOW ​ACCOUNT}$</p>
+<p align="center">$\color{#DB3BD8}{SIGN​ MY ​STUFF ​PLS?​ 𖥔 ​@KayleighJudas - ​MAIN ​ACCOUNT​ @beautifulbydesign ​- ​FOLLOW ​ACCOUNT}$</p>
 

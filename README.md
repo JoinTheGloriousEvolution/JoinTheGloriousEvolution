@@ -1,4 +1,4 @@
-<p align="center">$\color{#EE8CED}{PT'S​ MACHINE​ HERALD​ :​ TitleTown​ 𖥔​ PT​ Walk​ of ​Fame​ 𖥔 ​Ponychievements​ 𖥔 ​Charactersofpt ​𖥔 ​Ponytowncosplayers}$</p>
+<p align="center">$\color{#EE8CED}{PT'S​ MACHINE​ HERALD​ :​ TitleTown​ 𖥔​ PTWalkofFame​ 𖥔 ​Ponychievements​ 𖥔 ​Charactersofpt ​𖥔 ​Ponytowncosplayers}$</p>
 
 <p align="center"><img width="771" height="448" alt="bd2e9dfc-2811-4273-b956-f7263faf69a7" src="https://github.com/user-attachments/assets/6d59fb91-c1b8-4d16-ba6b-2c1923bf6fd1" /></p>
 

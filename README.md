@@ -12,7 +12,7 @@
 <td>
 <br>
 
-<p align="center">$\color{#5DC1F5}{​Call ​me ​Viktor ​and ​use​ He/Him ​exclusively.​ 18 ​years​ old.​ Doubles ​bug ​me ​greatly, so​ ​please ​iwc​.}$</p>
+<p align="center">$\color{#5DC1F5}{​Call ​me ​Viktor ​and ​use​ He/Him ​exclusively.​ 18 ​years​ old.​ Doubles ​bug ​me ​greatly, ​so​ please ​iwc​.}$</p>
 
 <p align="center">$\color{#5DC1F5}{My ​main​ has ​all ​the​ needed ​information ​about​ me. ​I ​would ​prefer ​if ​you ​go ​there ​before ​interacting.}$</p>
 
